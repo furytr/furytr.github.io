@@ -1,1 +1,0 @@
-# furytr.github.io
